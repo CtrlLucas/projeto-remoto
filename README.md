@@ -1,2 +1,2 @@
 **xuxuzin beleza**
-ANTES DO CONE
+DEPOIS DO CONE XUXU
